@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- Olá, eu sou Lauriely 👋
+- Eu sou estudante de colégio público, e estou cursando o ensino médio.
+- Amo cozinhar e manter a minha casa, principalmente o meu quarto organizado.
+- Eu gosto de cozinhar e escutar música, e curtir o meu tempo livre com meus amigos e com o meu namorado.
+- Minhas cores favoritas são preto, roxo e azul escuro.
+  
